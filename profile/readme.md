@@ -1,0 +1,1 @@
+We leverage our experience in commercial industry along with our expertise in government contracting to establish a consortium environment where government and industry work jointly with speed and precision.
